@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Epsilon Luoo [骆秀韬], an undergraduate student in Hubei University of Education.
+I'm Epsilon Luoo (骆秀韬), an undergraduate student in Hubei University of Education.
 
 #### About Me
 
