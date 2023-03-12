@@ -4,7 +4,7 @@ I'm Epsilon Luoo (骆秀韬), an undergraduate student in Hubei University of Ed
 
 #### About Me
 
-🤓 I'm in the Department of Physical and Mechanical and Electrical Engineering, majoring in Material Physics.
+🧑‍🎓 I'm in the Department of Physical and Mechanical and Electrical Engineering, majoring in Material Physics.
 
 📫 Do not hesitate to contact me if you have any things or questions want to discuss.
 
